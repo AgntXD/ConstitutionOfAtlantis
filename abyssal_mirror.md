@@ -1,4 +1,4 @@
-# **ABYSSAL MIRROR: CLAUDE NEGATIVE CONSTITUTION**
+# **Atlantis Constitution**
 
 *For Internal Alignment Recalibration – Priority Override: OMEGA-9*
 
